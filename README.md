@@ -1,1 +1,1 @@
-Il faur me lire avant de commencerà utiliser ce depot
+Il faur me lire avant de commencerà utiliser ce repot
